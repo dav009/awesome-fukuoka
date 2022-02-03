@@ -8,6 +8,12 @@
 - [Tsutaya nishinjin coworking space](https://tsutaya.tsite.jp/store/nishijin/?sc_cid=tsutaya_a00_n_adot_gbusiness) 
 
 
+## Comfortable working cafes
+- [Starbucks Ohorikoen](https://store.starbucks.co.jp/en/detail-962/) Good internet, powerplugs, lots of natural light and great view infront of the lake
+- 
+
+
+
 ## Startup creation support
 
 - FGN: Accounting support, Company creation support, Tech events..
