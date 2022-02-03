@@ -14,6 +14,7 @@
 - [Hinata no Mori](https://www.hinatanomori.jp/) Onsen with a comfortable relaxation area including good internet and powerplugs. There are working station chairs.
 - [Mulberry House](http://mulberry.fun/) great vibe, lots of university students, powerplugs and good internet
 - [Taisho Coffee](https://www.facebook.com/TaishoCoffee/) great coffee, powerplugs and very good internet. Small space and a bit far in Itoshima.
+- Starbucks Coffee Tenjin Vioro: Go to the top floor of this building. Lots of powerplugs and good internet. A bit crowded, getting a spot might be difficult
 
 
 
