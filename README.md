@@ -8,7 +8,7 @@
 - [Tsutaya nishinjin coworking space](https://tsutaya.tsite.jp/store/nishijin/?sc_cid=tsutaya_a00_n_adot_gbusiness) 
 
 
-## Comfortable working cafes
+## Comfortable working spots
 - [Starbucks Ohorikoen](https://store.starbucks.co.jp/en/detail-962/) Good internet, powerplugs, lots of natural light and great view infront of the lake
 - [Stong-cafe](https://www.stong-cafe.com/)  Powerplugs, good internet, easy to get chairs
 - [Hinata no Mori](https://www.hinatanomori.jp/) Onsen with a comfortable relaxation area including good internet and powerplugs. There are working station chairs.
