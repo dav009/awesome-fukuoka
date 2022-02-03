@@ -14,4 +14,4 @@
 
 
 ## Communities
-- [Fukuoka International Startups](https://www.meetup.com/en-AU/fukuoka-international-startups/). Ping @NanoScaleDesign to get access to Slack group
+- [Fukuoka International Startups](https://www.meetup.com/en-AU/fukuoka-international-startups/). Ping [@NanoScaleDesign](https://twitter.com/NanoScaleDesign) to get access to Slack group
