@@ -10,7 +10,7 @@
 
 ## Comfortable working cafes
 - [Starbucks Ohorikoen](https://store.starbucks.co.jp/en/detail-962/) Good internet, powerplugs, lots of natural light and great view infront of the lake
-- 
+- [Stong-cafe](https://www.stong-cafe.com/)  Powerplugs, good internet, easy to get chairs
 
 
 
