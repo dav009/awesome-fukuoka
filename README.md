@@ -13,6 +13,7 @@
 - [Stong-cafe](https://www.stong-cafe.com/)  Powerplugs, good internet, easy to get chairs
 - [Hinata no Mori](https://www.hinatanomori.jp/) Onsen with a comfortable relaxation area including good internet and powerplugs. There are working station chairs.
 - [Mulberry House](http://mulberry.fun/) great vibe, lots of university students, powerplugs and good internet
+- [Taisho Coffee](https://www.facebook.com/TaishoCoffee/) great coffee, powerplugs and very good internet. Small space and a bit far in Itoshima.
 
 
 
