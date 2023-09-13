@@ -1,11 +1,11 @@
 # Awesome-Fukuoka
 
 ## Coworking Spaces
-
-- [Minnano](https://minnano-itoshima.com/): 500 yen per 3 hours, 1000 whole day.
+- [Engineer Cafe](https://engineercafe.jp/ja/): Free, lots of spaces available. Quiet and loud areas.
 - [Startup Cafe](https://startupcafe.jp/en/top-en/) : Free coworking space.
 - [Salt](https://salt.today/): ~2200yen per day. 10am - 6pm. 
-- [Tsutaya nishinjin coworking space](https://tsutaya.tsite.jp/store/nishijin/?sc_cid=tsutaya_a00_n_adot_gbusiness) 
+- [Tsutaya nishinjin coworking space](https://tsutaya.tsite.jp/store/nishijin/?sc_cid=tsutaya_a00_n_adot_gbusiness)
+- [Minnano](https://minnano-itoshima.com/): 500 yen per 3 hours, 1000 whole day.
 
 
 ## Comfortable working spots
