@@ -20,7 +20,8 @@
 
 ## Startup creation support
 
-- FGN: Accounting support, Company creation support, Tech events..
+- FGN: Accounting support, Company creation support, Tech events
+- [Details on support to Enterpreneurs](docs/230406_1_2.pdf)
 
 
 ## Communities
